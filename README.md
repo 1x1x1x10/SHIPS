@@ -38,10 +38,6 @@ SHIPS I DO NOT TOLERATE
 
 BurningCheese
 
-ShadowVanilla
-
-MysticCacao
-
 CherryBomb
 
 AgarFire
