@@ -2,6 +2,12 @@
 
 SHIPS I LIKE
 
+WildFire
+
+SilentFire
+
+SilentWind
+
 PureLily
 
 Blackbell
