@@ -2,11 +2,13 @@
 
 SHIPS I LIKE
 
+velvetwind ( rarepair )
+
 WildFire
 
-SilentFire
+SilentFire ( rarepair )
 
-SilentWind
+SilentWind ( rarepair )
 
 PureLily
 
