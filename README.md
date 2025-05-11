@@ -1,57 +1,36 @@
 # SHIPS
+🂱 🃜 🃚 🃖 🃁 🂭 🂺
 
-SHIPS I LIKE
+i do ship alot of ships, rarepairs, etc.
 
-doublefedora
+♰ : heavily hyperfixating over
 
-CARAMELARCHER MY BELOVED RAREPAIR
+non-cross ones i do not heavily hyperfixate over !
 
-burntspirit ( rarepair )
+˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
-velvetwind ( rarepair )
+♰ doublefedora
 
-WildFire
+♰ firewind
 
-SilentFire ( rarepair )
+♰ burntwind [ r a r e p a i r . ] 
 
-SilentWind ( rarepair )
+♰ eternalflour
 
-PureLily
+clottedcier
 
-Blackbell
+hollytaya
 
-Mintcocoa
+burntsmoke
 
-FireWind
+peachcacao
 
-PeachCacao
+seamoon
 
-FireStar
+esspresseleine
 
-SilentShadow
+chilirye
 
-UrchinChoux
+˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
 
-HollyTaya
-
-SeaMoon
-
-Espresseleine
-
-WindStar
-
-
-
-SHIPS I DO NOT TOLERATE
-
-BurningCheese
-
-CherryBomb
-
-AgarFire
-
-PitaSnap
-
-And other toxic ships i do not ship.
-
----------------------------------------
+i do not condone or ship illegal ships as a non-problematic comshipper.
